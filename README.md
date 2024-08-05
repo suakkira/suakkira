@@ -13,5 +13,5 @@
 
 <p align="center"
 
-[![ ](https://i.postimg.cc/L4TgwHJX/Untitled62-20240730144847-1.png)](https://rentry.co/suakkira) ![!](https://i.postimg.cc/j2ZTX3dx/Untitled62-20240730145007-1.png) [![ ](https://i.postimg.cc/ydpnyFCq/Untitled62-20240730144927-1.png)](https://retrospring.net/@bulletchamber)
+[![ ](https://i.postimg.cc/L4TgwHJX/Untitled62-20240730144847-1.png)](https://rentry.co/suakkira) ![!](https://i.postimg.cc/j2ZTX3dx/Untitled62-20240730145007-1.png) [![ ](https://i.postimg.cc/ydpnyFCq/Untitled62-20240730144927-1.png)](https://retrospring.net/@suakkira)
 
