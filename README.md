@@ -1,7 +1,7 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=shibuyaangel&style=for-the-badge&color=9a9a9a&base=1529&label=profile+views) 
+![](https://komarev.com/ghpvc/?username=shibuyaangel&style=plastic&color=a03914&base=1529&label=profile+views) 
 
 <p align="center"
 
