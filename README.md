@@ -1,17 +1,20 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=shibuyaangel&style=plastic&color=AD0E0E&base=1529&label=profile+views) 
+![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=7E594F&base=1529&label=hai) 
 
 <p align="center"
 
-![ ](https://i.ibb.co/C92Mq1h/Untitled82-20241205231253.png) ![ ](https://i.ibb.co/Pz5QLGW/Untitled82-20241205224129.png) ![ ](https://i.ibb.co/Xbjnzdp/Untitled82-20241205231344.png)
+![ ](https://i.postimg.cc/HsCgSvwX/Screenshot-2025-07-01-135625-removebg-preview-1.png) 
 
+<p align="center" 
+
+rina / karina  c + h int she her
+
+<p align="center" 
+
+mostly offtab w2i 
 
 <p align="center"
 
-![ ](https://i.ibb.co/VNDj2M5/download-1-removebg-preview.png) 
-
-<p align="center"
-
-[![ ](https://i.ibb.co/TkXfT2D/Untitled82-20241205230956.png)](https://suakkira.atabook.org/)
+[atabook](https://suakkira.atabook.org/)
