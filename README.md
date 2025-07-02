@@ -17,4 +17,4 @@ mostly offtab w2i
 
 <p align="center"
 
-[strawpage](suakkira.straw.page) . [atabook](https://suakkira.atabook.org/)
+[strawpage](https://suakkira.straw.page) . [atabook](https://suakkira.atabook.org/)
