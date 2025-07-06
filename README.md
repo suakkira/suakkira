@@ -9,7 +9,7 @@
 
 <p align="center" 
 
-rina / karina  c + h int she her
+rina / karina  c + h comf she her
 
 <p align="center" 
 
