@@ -9,7 +9,7 @@
 
 <p align="center" 
 
-rina / karina  c + h comf (PLEASE) she her
+rina / karina  c + h she her
 
 <p align="center" 
 
