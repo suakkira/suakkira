@@ -5,7 +5,7 @@
 
 <p align="center"
 
-![ ](https://i.postimg.cc/bv0ryvg5/Untitled15-20260220183821-1-60.png) 
+![ ](https://i.postimg.cc/GmGhKpWr/Untitled15-20260220183821-2-50.png) 
 
 <p align="center" 
 
