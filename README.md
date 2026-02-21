@@ -1,11 +1,11 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=a1a1a1&base=1529&label=hai) 
+![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=a1a1a1&base=1529&label=nortonlings) 
 
 <p align="center"
 
-![ ](https://i.postimg.cc/XYGyb3TV/Untitled15-20260220183821.png) 
+![ ](https://i.postimg.cc/bv0ryvg5/Untitled15-20260220183821-1-60.png) 
 
 <p align="center" 
 
