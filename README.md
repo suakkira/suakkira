@@ -9,11 +9,11 @@
 
 <p align="center" 
 
-rina / karina / rachelle  c + h she her
+rina / karina / rachelle   she her
 
 <p align="center" 
 
-mostly offtab w2i or sign ata
+mostly offtab w2i or sign ata   c + h freely
 
 <p align="center"
 
