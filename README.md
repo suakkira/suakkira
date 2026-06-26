@@ -13,7 +13,7 @@ rina / karina / rachelle   she her
 
 <p align="center" 
 
-mostly offtab w2i or sign ata   c + h freely
+mostly offtab w2i or sign myFREAKING ata lets be moots  c + h freely
 
 <p align="center"
 
