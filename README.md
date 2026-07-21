@@ -13,7 +13,7 @@ rina / karina / rachelle   she her
 
 <p align="center" 
 
-mostly offtab w2i or sign my ata, i fb if ur cool!  c + h freely x
+mostly offtab w2i or sign my ata, i fb if ur cool!  c+h encouraged x
 
 <p align="center"
 
