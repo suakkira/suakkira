@@ -18,3 +18,7 @@ mostly offtab w2i or sign my ata, i fb if ur cool!  c+h encouraged x
 <p align="center"
 
 [strawpage](https://suakkira.straw.page) . [atabook](https://suakkira.atabook.org/)
+
+<p align="center"
+
+normie on [github tierlist 2024](https://rentry.co/github-tierlist) my life achievement
