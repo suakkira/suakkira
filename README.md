@@ -1,24 +1,22 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=a1a1a1&base=1529&label=hello) 
+![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=B8B28A&base=1529&label=󠀠󠀠♡󠀠󠀠 )
 
 <p align="center"
 
-![ ](https://i.postimg.cc/gkfhBpMK/730357264555162372.jpg) 
+![ ](https://i.postimg.cc/XYmgWRck/Untitled16-20260806004742.png) 
 
 <p align="center" 
 
-rina / karina / rachelle   she her
+${\color{#DEDBBD}\textsf{rina / karina / rachelle   she her}}$
 
 <p align="center" 
 
-mostly offtab w2i or sign my ata, i fb if ur cool!  c+h encouraged x
+${\color{#DEDBBD}\textsf{mostly offtab w2i or sign my ata. c+h encouraged}}$
 
 <p align="center"
 
 [strawpage](https://suakkira.straw.page) . [atabook](https://suakkira.atabook.org/)
 
 <p align="center"
-
-normie on [github tierlist 2024](https://rentry.co/github-tierlist) my life achievement
