@@ -9,11 +9,11 @@
 
 <p align="center" 
 
-${\color{#DEDBBD}\textsf{rina / karina / rachelle   she her}}$
+rina / karina / rachelle   she her
 
 <p align="center" 
 
-${\color{#DEDBBD}\textsf{mostly offtab w2i or sign my ata. c+h encouraged}}$
+mostly offtab w2i or sign my ata. c+h encouraged
 
 <p align="center"
 
