@@ -1,11 +1,11 @@
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=B8B28A&base=1529&label=󠀠󠀠♡󠀠󠀠 )
+![](https://komarev.com/ghpvc/?username=shibuyaangel&style=flat&color=bababa&base=1529&label=󠀠󠀠♡󠀠󠀠 )
 
 <p align="center"
 
-![ ](https://i.postimg.cc/BZRZxNgT/Untitled16-20260806004200.png) 
+![ ](https://i.postimg.cc/yYpSrMr1/sasuke-uchiha-removebg-preview-2.png) 
 
 <p align="center" 
 
